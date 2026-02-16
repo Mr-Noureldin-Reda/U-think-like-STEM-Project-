@@ -26,7 +26,6 @@ Educational & Strategic Value
 The concept promotes: Critical thinking Systems thinking Quantitative reasoning Cross-disciplinary collaboration Adaptive problem solving The design framework aligns with project-based learning models and capstone simulation structures.
 
 © 2026 [Nour El-Din Reda]. All Rights Reserved.
-
 U-Think-Like-STEM is an original marketing game concept developed for academic and promotional purposes. Unauthorized reproduction, distribution, modification, or commercial use of this project, in whole or in part, is strictly prohibited without written permission from the author.
 
 _ Still under development _
