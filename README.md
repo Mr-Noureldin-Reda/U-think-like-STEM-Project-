@@ -1,4 +1,3 @@
-U-Think-Like-STEM
 A marketing game... to promote the STEM program.
 
 
